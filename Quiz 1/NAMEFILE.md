@@ -22,8 +22,30 @@ Dimple Patel
 
 Ziwei Wang
 
-Stephen Xiao
+Nia Temple  
+
+Prithvi Bellamkonda  
+
+Lekha Panati
+
+Stephen Xiao  
+
+Adithya Narayan
+
+Stephanie Jin
 
 Madison Park
 
-Adithya Narayan
+Renault Kang
+
+Harish Ravisankar
+
+Say Say
+
+Michael Chiflikyan
+
+Mathew Cherian
+
+Austin Clark
+
+Neel Acharya
